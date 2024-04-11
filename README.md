@@ -1,0 +1,1 @@
+Hasta el momento he aprendido a crear paginas en bruto las cuales ya, de por sí son de mi agrado.
